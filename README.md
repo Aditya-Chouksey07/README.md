@@ -1,4 +1,4 @@
-# Hi, I'm Aditya Choukesy 👋
+# Hi, I'm Aditya Chouksey 👋
 
 🚀 AIML Student | Building High-Impact Projects | Precision-Driven Learner  
 
